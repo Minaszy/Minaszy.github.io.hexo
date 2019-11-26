@@ -1,0 +1,1 @@
+# Minaszy.github.io.hexo
